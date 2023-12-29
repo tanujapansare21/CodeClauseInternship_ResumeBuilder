@@ -9,6 +9,9 @@ Features of a well-structured ATS friendly resume:
 2.Easily readable and less time-consuming.
 
 3.Be honest in whatever you mention in your resume.
+
 4.Quality matters over quantity which means giving specific areas of personal interest.
+
 5.Be precise.
+
 6.Talk about your achievements,
